@@ -1,2 +1,4 @@
 # app-dev
 My fist repository
+**3 idiots**
+1.when Farhan Qureshi goes to his dad to convince him to let him follow his passion and at the same time Raju Rastogi is giving his interview.                           2.when, Virus’s eldest daughter(Mona), survives death and delivers her child with help of, the male protagonist, Rancho(Aamir Khan). And because of the saying “All Is Well “, the child starts to cry and is known to be alive.                                                                                                           3.when Rancho's professor asks him what a machine is. He describes it in simple words but it does not seem to fit right with the professor who is expecting a text-book definition. The scene ends on a funny note when the professor asks him to get out of the room. 
